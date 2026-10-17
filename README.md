@@ -1,4 +1,4 @@
-<p align="center"> <img width="500px" src="https://file.garden/Z2azQBUlakNoNbak/128951899_U9HirKDtq9p63Of.png"> </p>
+<p align="center"> <img width="500px" src="https://file.garden/Z2azQBUlakNoNbak/Untitled281_20261014212806.png"> </p>
 <p align="center"> hewo everypon.y.   </p>
 <p align="center"> <img width="50px" src="https://file.garden/Z2azQBUlakNoNbak/40382566.png">‎ ‎
 <a href="https://rentry.co/webttorepaws
